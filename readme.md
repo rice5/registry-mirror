@@ -36,6 +36,4 @@
 
 `https://51.ruyo.net/18687.html`
 
-### 广告位
 
-我的tg频道 [https://t.me/bboyapp](https://t.me/bboyapp)
